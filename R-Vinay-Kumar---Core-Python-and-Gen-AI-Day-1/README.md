@@ -1,1 +1,0 @@
-# R-Vinay-Kumar---Core-Python-and-Gen-AI
